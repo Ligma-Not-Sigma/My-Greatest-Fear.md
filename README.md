@@ -1,18 +1,17 @@
-# My-Greatest-Fear.md
+# My Greatest Fear
 
-## my greatest fear is **failure**
-##### a lot of things i do i hesitate to do them due to a fear of failure
-its like a very persistent thought in the back of my head a lot and ends up making me perform **bad** especially in sports 
-the constant fear makes me hesitate on decisions and espcially in the sports i play that are fast paced the hesitation does a very large impact on my performance
-### alot of times where my greatest fear comes into play is:
-- sports
-- important events
-- academics
-- social situations
-- pubic events
-- performing infront of people
+## My greatest fear is **failure**
 
- slowly but surely the fear is getting better and im ***slowly*** overcoming it but it is still one of my greatest fears and my *most* consistent fear in life
+##### A lot of things I do, I hesitate to do them due to a fear of failure.
 
+It is a persistent thought in the back of my head and often affects my performance, especially in sports. The constant fear makes me hesitate in making decisions, and in the fast-paced sports I play, this hesitation has a significant impact on my performance.
 
+### Situations where my greatest fear comes into play are:
+- Sports
+- Important events
+- Academics
+- Social situations
+- Public events
+- Performing in front of people
 
+Slowly but surely, the fear is getting better, and I am ***slowly*** overcoming it. However, it remains one of my greatest and most consistent fears in life.
